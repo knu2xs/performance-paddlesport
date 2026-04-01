@@ -4,4 +4,4 @@ Performance Paddlesport is an organization dedicated to helping paddlers of all 
 
 ## Mission
 
-The mission of Performance Paddlesport is the pursuit of excellence in the medium of human powered paddlesport — not because it is easy, but because the raw power of whitewater is a uniquely honest teacher, a teacher that, through daily, humble practice, instills the confidence and awareness for the pursuit of excellence in any endeavor.
+The mission of Performance Paddlesport is fostering the pursuit of excellence as a habit in the medium of human powered paddlesport — not because it is easy, but because the raw power of whitewater is a uniquely honest teacher, a teacher that, through daily, humble practice, instills the confidence and awareness for the pursuit of excellence in any endeavor.
