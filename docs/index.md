@@ -2,9 +2,9 @@
 
 ![Image](./assets/salmonlasac_wyatt_header.jpg)
 
-> Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty...I have never in my life envied a human being who led an easy life; I have envied a great many people who led difficult lives and led them well. - Theodore Roosevelt
+Whitewater kayaking is visceral. It is powerful, raw, unforgiving and humbling from the very first moment you slide into the current.
 
-Whitewater kayaking is visceral. Whitewater kayaking is powerful, raw, unforgiving and humbling from the very first moment you slide into the current.
+> Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty...I have never in my life envied a human being who led an easy life; I have envied a great many people who led difficult lives and led them well. - Theodore Roosevelt
 
 Few sports demand so much, so fast. Few have such a punishingly steep initial learning curve. Sliding into the water for the first time locked into the small narrow craft, every little movement of the water is telegraphed directly into your hips. This intimate connection, it directly communicates the incredible power of the water. This visceral experience is intensified by the very real fear of being upside down, and having get out of this boat.
 
