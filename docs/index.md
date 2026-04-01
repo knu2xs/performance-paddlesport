@@ -18,10 +18,16 @@ These moments are when the water's energy flows up through the hull and into you
 
 > We are what we repeatedly do. Excellence, therefore, is not an act, but a habit. - Will Durant, 1926
 
-Watch world‑class paddlers and it seems impossible that anything could go wrong. Their strokes are quiet, almost delicate, yet every movement is loaded with intent. When balance, timing, and instinct align, you witness the moments when fleeting gimpse of perfection are visible. Ask any of these athletes, even the best...there is alwyas more. Perfection is unreachable. But excellence is real, earned by continually sharpening your senses, your timing, your vision of what perfection might feel like for one brief, electric moment.
+Watch world‑class paddlers and it seems impossible that anything could go wrong. Their strokes are quiet, almost delicate, yet every movement is loaded with intent. When balance, timing, and instinct align, you witness the moments when fleeting gimpses of perfection are visible. 
 
-In the early 1900s, the historian and philosopher Will Durant distilled Aristotle’s thinking into a single idea: we become what we repeatedly do. Excellence isn’t born in a single grand gesture, nor in the occasional burst of effort. It grows slowly, almost imperceptibly, through the rhythm of practice.
+Ask any of these athletes, even the best...there is alwyas more. Perfection is unreachable. But excellence is real, earned by continually sharpening senses, timing, and refining the vision of what perfection might feel like for one brief, electric moment when excellence is realized.
 
-Excellence is whitweater is realized by making the river an almost daily habit, coming to the river, getting in the boat, arriving humble, curious and willing to be shaped by the water. You show up, you work, you learn, and on certain rare days, the effort aligns and you catch a fleeting glimpse of excellence, and it is wonderul.
+In the early 1900s, the historian and philosopher Will Durant distilled Aristotle’s thinking into a single idea: we become what we repeatedly do. "We are what we repeatedly do. Excellence, therefore, is not an act, but a habit." Excellence isn’t born in a single grand gesture, nor in the occasional burst of effort. It grows slowly, almost imperceptibly, through the rhythm of practice.
+
+Excellence is whitweater is realized by making the river an almost daily habit...coming to the river, getting in the boat, arriving humble, curious and willing to be shaped by the water. Show up, work, learn, and on certain rare days, effort aligns and a fleeting glimpse of excellence is realized...and it is wonderul.
 
 This is why it is important not to do a _lot a little_, but rather to do a _little a lot_. Show up with your whole being and grow a little bit every day. The journey to excellence is guided by perfection one small step at a time.
+
+This doing of the thing, this pursuit of excellence. This daily process is a habit of realizing excellence by striving for perfection. It is about learning to show up with confidence, humility and curiousity. It is knowing how to recognize excellence and see past it toward perfection, to recognize this to be able to strive toward it. 
+
+These skills are not unique to whitewater paddling. The powerful, raw and unforgiving nature of whitewater however, uniquely hones these skills. It provides a unique environment unlike any other, which can hone the skills for realizing excellence generalizable to any other aspect of life.
