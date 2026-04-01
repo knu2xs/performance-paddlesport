@@ -1,0 +1,12 @@
+name: performance_paddlesport
+
+channels:
+  - conda-forge
+
+dependencies:
+  - pip
+  - python=3.12
+  - pip:
+    - build
+    - bump2version
+    - zensical
