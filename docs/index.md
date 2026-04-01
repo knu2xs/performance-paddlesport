@@ -12,7 +12,7 @@ This question is not if, but when. Inevitably will be upside down, typically soo
 
 Here in the Pacific Northwest, the water is never warm. The cold water simply sucks energy out of you when you swim. The first few times paddling, it is not if you swim, but how many times. Be terrified, swim, recover, shiver and repeat. It is exhausting.
 
-![Image](./assets/salmonlasac_up_c1.jpeg){width="50%", align="right"}Why do it? Why pursue this sport? It is for the moments; the moments when you move not against, but with the water. At first they are astonishingly fleeting. Every time in the boat, you are able to find these moments a little more. While fleeting, these moments gradually become more.
+![Image](./assets/salmonlasac_up_c1.jpeg){width="50%", align="right"}Why do it? Why pursue this sport? It is for the moments; the moments when you move not against, but with the water. At first they are astonishingly fleeting. Every time in the boat, you are able to find these moments a little more. While fleeting, these moments gradually become more frequent and longer.
 
 These moments are when the water's energy flows up through the hull and into your body. Instead of fighting against, you are gliding _with the water_...going _with the energy_, not against it. The river pulses and surges; you are riding this energy, carving across waves lifting and carrying you. Tapping into the river's rythmn, you are not conquering; it is not masery, but communion with the energy of the water.
 
