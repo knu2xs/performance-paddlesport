@@ -28,6 +28,8 @@ Excellence is whitweater is realized by making the river an almost daily habit..
 
 This is why it is important not to do a _lot a little_, but rather to do a _little a lot_. Show up with your whole being and grow a little bit every day. The journey to excellence is guided by perfection one small step at a time.
 
+> We choose to...do things, not because they are easy, but because they are hard. - President John Fitzgerald Kennedy
+
 This doing of the thing, this pursuit of excellence. This daily process is a habit of realizing excellence by striving for perfection. It is about learning to show up with confidence, humility and curiousity. It is knowing how to recognize excellence and see past it toward perfection, to recognize this to be able to strive toward it. 
 
 These skills are not unique to whitewater paddling. The powerful, raw and unforgiving nature of whitewater however, uniquely hones these skills. It provides a unique environment unlike any other, which can hone the skills for realizing excellence generalizable to any other aspect of life.
