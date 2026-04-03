@@ -1,4 +1,8 @@
-# Performance Paddlesport <br/><small>Excellence through Paddsport</small>
+---
+title: Home
+---
+
+# Performance Paddlesport <br/><small>Excellence through Paddlesport</small>
 
 ![Image](./assets/salmonlasac_wyatt_header.jpg)
 
@@ -14,17 +18,17 @@ Here in the Pacific Northwest, the water is never warm. The cold water simply su
 
 ![Image](./assets/salmonlasac_up_c1.jpeg){width="50%", align="right"}Why do it? Why pursue this sport? It is for the moments; the moments when you move not against, but with the water. At first they are astonishingly fleeting. Every time in the boat, you are able to find these moments a little more. While fleeting, these moments gradually become more frequent and longer.
 
-These moments are when the water's energy flows up through the hull and into your body. Instead of fighting against, you are gliding _with the water_...going _with the energy_, not against it. The river pulses and surges; you are riding this energy, carving across waves lifting and carrying you. Tapping into the river's rythmn, you are not conquering; it is not masery, but communion with the energy of the water.
+These moments are when the water's energy flows up through the hull and into your body. Instead of fighting against, you are gliding _with the water_...going _with the energy_, not against it. The river pulses and surges; you are riding this energy, carving across waves lifting and carrying you. Tapping into the river's rhythm, you are not conquering; it is not masery, but communion with the energy of the water.
 
 > We are what we repeatedly do. Excellence, therefore, is not an act, but a habit. - Will Durant, 1926
 
-Watch world‑class paddlers and it seems impossible that anything could go wrong. Their strokes are quiet, almost delicate, yet every movement is loaded with intent. When balance, timing, and instinct align, you witness the moments when fleeting gimpses of perfection are visible. 
+Watch world‑class paddlers and it seems impossible that anything could go wrong. Their strokes are quiet, almost delicate, yet every movement is loaded with intent. When balance, timing, and instinct align, you witness the moments when fleeting glimpses of perfection are visible. 
 
-Ask any of these athletes, even the best...there is alwyas more. Perfection is unreachable. But excellence is real, earned by continually sharpening senses, timing, and refining the vision of what perfection might feel like for one brief, electric moment when excellence is realized.
+Ask any of these athletes, even the best...there is always more. Perfection is unreachable. But excellence is real, earned by continually sharpening senses, timing, and refining the vision of what perfection might feel like for one brief, electric moment when excellence is realized.
 
 In the early 1900s, the historian and philosopher Will Durant distilled Aristotle’s thinking into a single idea: we become what we repeatedly do. "We are what we repeatedly do. Excellence, therefore, is not an act, but a habit." Excellence isn’t born in a single grand gesture, nor in the occasional burst of effort. It grows slowly, almost imperceptibly, through the rhythm of practice.
 
-Excellence is whitweater is realized by making the river an almost daily habit...coming to the river, getting in the boat, arriving humble, curious and willing to be shaped by the water. Show up, work, learn, and on certain rare days, effort aligns and a fleeting glimpse of excellence is realized...and it is wonderul.
+Excellence is whitewater is realized by making the river an almost daily habit...coming to the river, getting in the boat, arriving humble, curious and willing to be shaped by the water. Show up, work, learn, and on certain rare days, effort aligns and a fleeting glimpse of excellence is realized...and it is wonderful.
 
 This is why it is important not to do a _lot a little_, but rather to do a _little a lot_. Show up with your whole being and grow a little bit every day. The journey to excellence is guided by perfection one small step at a time.
 
